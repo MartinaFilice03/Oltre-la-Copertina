@@ -1,1 +1,1 @@
-# Oltre-la-Copertina
+Oltre la Copertina è uno spazio dedicato a chi desidera scoprire l'anima nascosta dei libri. Qui esploriamo storie, emozioni e significati che vanno oltre le parole stampate. Ogni libro ha un mondo segreto tutto da svelare, e noi siamo qui per accompagnarti in questo viaggio di scoperta. Unisciti a noi nel leggere non solo con gli occhi, ma anche con il cuore
